@@ -7,7 +7,7 @@
 - my osu (private server) ：https://ripple.moe/u/132174 , https://osu.gatari.pw/u/27748 , https://osu.ppy.sb/u/4609 , https://osu.ppy.sb/u/5450
 - my twitter：https://twitter.com/guansheng110
 - my vrchat：https://vrchat.com/home/user/usr_e05615e5-aa66-4fc4-89bb-c479b0448f30
-- If you want to make friends with me, please add my discord：宁宣#5620
+- If you want to make friends with me, please add my discord：guansheng110
 
 
 
