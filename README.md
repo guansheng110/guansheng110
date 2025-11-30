@@ -1,6 +1,6 @@
 ### Hi there 👋
 - I am guansheng
-- I am a Hongkonger born in Malaysia. I used to live in Hongkong and now live in Malaysia
+- im form Malaysia
 - I like play osu,vrchat,valorant,minecraft
 - about me：https://lit.link/en/guansheng110
 - my osu：https://osu.ppy.sh/users/24553657
