@@ -3,7 +3,7 @@
 - I am a Hongkonger born in Malaysia. I used to live in Hongkong and now live in Malaysia
 - I like play osu,vrchat,valorant,minecraft
 - about me：https://lit.link/en/guansheng110
-- my osu：https://osu.ppy.sh/users/24553657 (banned lol)
+- my osu：https://osu.ppy.sh/users/24553657
 - my osu (private server) ：https://ripple.moe/u/132174 , https://osu.gatari.pw/u/27748 , https://osu.ppy.sb/u/4609 , https://osu.ppy.sb/u/5450
 - my twitter：https://twitter.com/guansheng110
 - my vrchat：https://vrchat.com/home/user/usr_e05615e5-aa66-4fc4-89bb-c479b0448f30
